@@ -1,1 +1,1 @@
-# FOSSASIA-2024-Hackathon
+# Climate-Action-Funding-Action
